@@ -1,4 +1,4 @@
-## 🧭 My Philosophy: Driven by Complexity
+My Greatest Flaw & Greatest Strength: Unapologetically Ambitious
 
 > "I am not a product of rote memorization; I am a battle-ready problem solver."
 
