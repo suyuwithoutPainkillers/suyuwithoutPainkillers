@@ -1,6 +1,6 @@
 My blessing and a curse: Unapologetically Ambitious
 
-> "I am not a product of rote memorization; I am a battle-ready problem solver."
+> "I am not a product of rote memorization; I am an architect of creative solutions"
 
 I have always been naturally drawn to complex, systemic challenges. In high school, my obsession with pushing the boundaries of advanced physics and mathematics often came at the cost of trivial, standardized test points. Yet, when pushed to the limit, my raw self-learning capacity allowed me to skyrocket from the bottom of my class to **Rank #1** within a single month before graduation. Standardized college entrance exams failed to capture my true ceiling because I refuse to settle for the easy answers.
 
