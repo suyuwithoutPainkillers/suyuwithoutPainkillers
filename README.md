@@ -1,4 +1,4 @@
-My Greatest Flaw & Greatest Strength: Unapologetically Ambitious
+My blessing and a curse: Unapologetically Ambitious
 
 > "I am not a product of rote memorization; I am a battle-ready problem solver."
 
